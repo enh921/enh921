@@ -1,0 +1,4 @@
+- hi, im enrique
+- USF mech e C/O '24
+- SOAR president 2023-24
+- enrique17@usf.edu
